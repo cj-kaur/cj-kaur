@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cj-kaur
-- 👀 I’m interested in design, code and Rnb music!
+- 👀 I’m interested in design, code and music!
 - 🌱 I’m currently learning Front-end Development and Human Centered Design
 - 💞️ I’m looking to collaborate on Design Projects
 - 📫 How to reach me 
