@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Design Projects
 - 📫 How to reach me 
     - email: jai.mankoo97@gmail.com
-    - LinkedIn: linkedin.com/in/chiranjivi-jai-kaur-mankoo-3969a3158
+    - LinkedIn: https://www.linkedin.com/in/chiranjivi-jai-kaur-mankoo-3969a3158/
     - Behance: https://www.behance.net/chiranjmankoo 
     
 
