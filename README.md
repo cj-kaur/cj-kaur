@@ -5,6 +5,7 @@
 - 📫 How to reach me 
     - email: jai.mankoo97@gmail.com
     - LinkedIn: linkedin.com/in/chiranjivi-jai-kaur-mankoo-3969a3158
+    - Behance: https://www.behance.net/chiranjmankoo 
     
 
 <!---
